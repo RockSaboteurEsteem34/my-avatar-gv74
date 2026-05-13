@@ -1,4 +1,4 @@
-#  
+#  my avatar Scripts custom is the best my avatar Script, featuring god mode and auto-heal. Safe and powerful for all your needs.
 
 
 
